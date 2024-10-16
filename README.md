@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @grainywithacrack
 - 👀 I’m interested in video editing
 - 🌱 I’m currently learning coding
-- 📫 How to reach me: insta: @yellowearchive
+- 📫 How to reach me: insta: @yashika.raf
 
 
 <!---
