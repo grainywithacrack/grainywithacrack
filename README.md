@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @grainywithacrack
-- 👀 I’m interested in video editing
+- 👋 Hi, I’m @grainywithacrack 
+- 🎞️ interested in Photography and video editing
 - 🌱 I’m currently learning coding
 - 📫 How to reach me: insta: @yashika.raf
 
