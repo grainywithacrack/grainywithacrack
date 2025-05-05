@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @grainywithacrack 
+- 👋 Hi, I’m @yashxre 
 - 🎞️ interested in Photography and video editing
 - 🌱 I’m currently learning coding
 - 📫 How to reach me: insta: @yashika.raf
